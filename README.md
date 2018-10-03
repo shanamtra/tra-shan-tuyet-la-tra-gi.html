@@ -20,8 +20,8 @@
 
 <p><em><strong>Trà Shan Tuyết</strong>&nbsp;(hay&nbsp;chè Shan tuyết) là loại&nbsp;trà&nbsp;có&nbsp;búp&nbsp;to màu trắng xám, dưới lá trà có phủ 1 lớp lông tơ mịn, trắng nên người dân gọi là trà tuyết.&nbsp;Trà Tuyết Shan có mùi thơm dịu, nước vàng sánh màu mật ong. Trà được chế biến theo phương pháp thủ công của người dân tộc&nbsp;Mông,&nbsp;Dao.</em></p>
 
-<p>Trên hết, với những gói trà Shanam thơm ngon đặt biệt, chất lượng hảo hạng, chúng tôi đã mang đến một cuộc sống ấm no, đủ đầy hơn cho người dân vùng cao quanh năm sương gió, đưa những tinh hoa của đất trời vào trong từng tách trà Shan Tuyết ngút khói.</p>
+<p>Trên hết, với những gói <strong><a href="https://shanam.com.vn/">trà Shanam</a></strong> thơm ngon đặt biệt, chất lượng hảo hạng, chúng tôi đã mang đến một cuộc sống ấm no, đủ đầy hơn cho người dân vùng cao quanh năm sương gió, đưa những tinh hoa của đất trời vào trong từng tách trà Shan Tuyết ngút khói.</p>
 
 <div class="body-text">
-<p>&nbsp;</p>
+<p>Xem chi tiết về trà tại :&nbsp;<strong><a href="https://shanam.com.vn/tra-shan-tuyet.html">https://shanam.com.vn/tra-shan-tuyet.html</a></strong></p>
 </div>
