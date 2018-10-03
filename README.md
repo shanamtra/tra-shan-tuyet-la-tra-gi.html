@@ -2,7 +2,7 @@
 
 <h1 dir="ltr">Trà Shan Tuyết là gì - Cảm nhận tinh hoa chè Shan tuyết cổ thụ</h1>
 
-<p>Chắc hẳn nếu một lần từng nhâm nhi ngụm&nbsp;<a href="https://www.linkedin.com/pulse/tra-shan-tuyet-la-gi-cam-nhan-tinh-hoa-che-co-thu-tr%C3%A0-shanam/" target="_blank">trà Shan Tuyết</a>&nbsp;bạn sẽ khó có thể quên được vị chát đậm nhưng êm, không đắng gắt và đượm vị ngọt hậu của trà. Phải chăng do sinh trưởng hoàn toàn hoang dã trên những vùng miền sơn cước, phơi mình dưới nắng và gió suốt hàng trăm năm đã tạo nên nét đặc trưng riêng đó.</p>
+<p>Chắc hẳn nếu một lần từng nhâm nhi ngụm&nbsp;<a href="https://github.com/shanamtra/tra-shan-tuyet-la-tra-gi.html/" target="_blank">trà Shan Tuyết</a>&nbsp;bạn sẽ khó có thể quên được vị chát đậm nhưng êm, không đắng gắt và đượm vị ngọt hậu của trà. Phải chăng do sinh trưởng hoàn toàn hoang dã trên những vùng miền sơn cước, phơi mình dưới nắng và gió suốt hàng trăm năm đã tạo nên nét đặc trưng riêng đó.</p>
 
 <h2>Chè Shan Tuyết khác chè thường như thế nào</h2>
 
